@@ -1,6 +1,6 @@
 # 📱 Mobile App Development Cost in UAE, Saudi Arabia & GCC (2026 Guide)
 
-![App Development](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1777638947484_0eb8e628-ee79-444e-a281-d45f21f10499.webp}
+![App Development](https://kuchoriya-software.s3.ap-south-1.amazonaws.com/Image/1777638947484_0eb8e628-ee79-444e-a281-d45f21f10499.webp)
 
 ## Introduction
 
